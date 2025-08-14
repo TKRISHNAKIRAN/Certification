@@ -20,7 +20,7 @@ Other Skills – Communication, Soft Skills, Workshops
 
 📬 Contact
 
-Email:T Krishna Kiran
+Email:tkrishnakiran2145@gmail.com
 
 LinkedIn:http://www.linkedin.com/in/t-krishna-kiran-bab203312
 
